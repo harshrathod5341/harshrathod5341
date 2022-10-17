@@ -1,0 +1,5 @@
+- 😎 Intro // Harsh from CANADA.
+- ❤  Like // Coding and stuff.
+- 🌱 Learning //  Machine Learning development.
+- 💞️ Draeam job // OpanAI.
+- 📫 Reach me // harshrathod0789@gmail.com
