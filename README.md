@@ -1,4 +1,4 @@
-- 😎 Intro // Harsh.
+- 😎 Name // Harsh.
 - ❤  Like // Coding and stuff.
 - 🌱 Learning //  Machine Learning development.
 - 💞️ Draeam job // OpanAI.
