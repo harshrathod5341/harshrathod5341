@@ -1,5 +1,5 @@
 - 😎 Name // Harsh.
 - ❤  Like // Coding and stuff.
 - 🌱 Learning //  Machine Learning development.
-- 💞️ Draeam job // OpanAI.
+- 💞️ Dream job // OpanAI.
 - 📫 Reach me at // harshrathod0789@gmail.com
